@@ -4,6 +4,6 @@ Officially registed as Stompers Global.
 * Stompers Coding
 * GlitchRock Games
 ## Stompers Gaming
-* Stompers Hockey
+* Stompers Chel
 * Stompers Destiny
 * Stompers Diablo
